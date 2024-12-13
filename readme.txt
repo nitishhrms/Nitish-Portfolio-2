@@ -1,1 +1,1 @@
-My portfolio highlighting my skills, background, research work and projects.
+My portfolio highlighting my skills, background, research work & projects.
